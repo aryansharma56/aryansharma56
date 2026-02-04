@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aryansharma5669@gmail.coom**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qr9u3l3IlsmwczLSFnl2T7zdFeaHn339/view?usp=sharing](https://drive.google.com/file/d/1qr9u3l3IlsmwczLSFnl2T7zdFeaHn339/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1qr9u3l3IlsmwczLSFnl2T7zdFeaHn339/view?usp=sharing](https://drive.google.com/file/d/1hENSzz1XD1oGAMpsZzi-aMn3ESzEE04g/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
